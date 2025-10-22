@@ -12,6 +12,7 @@ Weight lifting, Cooking, Puzzles
 Artificial Intelligence, Cybersecurity, Martial Arts
 
 🔗 Links
+
 [GitHub](https://github.com/Prince4422) [LinkedIn](https://www.linkedin.com/in/elijah-gravely-119316390/)
 
 "I'm Batman. -Batman"
